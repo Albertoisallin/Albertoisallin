@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Albertoisallin
-- 👀 I’m interested in Sports, IT, Videogames, Comicboks and travelling
+- 👀 I’m interested in Sports, IT, Videogames, Comicbooks and travelling
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on every enterprise I could go with the amazing python 
 - 📫 How to reach me @NathanDrakeOne on X, @albertoisallin Instagram and of course on my e.mail: vidal.920821@gmail.com
